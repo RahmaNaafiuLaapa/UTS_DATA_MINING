@@ -1,0 +1,2 @@
+# UTS_DATA_MINING
+Rahma Naafiu La apa / 202055202010
